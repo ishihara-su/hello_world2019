@@ -8,3 +8,4 @@ Hello Suzu Hirose
 
 Hello Maggy Shiro
 
+We will rock you!
